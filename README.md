@@ -1,1 +1,1 @@
-# Economic-Students-Chamber-Web
+# Economic-Students-Chamber
